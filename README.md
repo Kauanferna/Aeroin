@@ -1,2 +1,0 @@
-
-["amig.osdabatida"kauanncantor"]
